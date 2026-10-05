@@ -1,10 +1,8 @@
 # Does Your Branding Look Slightly Off Every Single Time?
 
 ## Do You Need Someone Who Checks Files Before Printing?
-
 [Customised gift shops in coimbatore](https://corporate-concepts.com/best-customised-gift-shops-in-coimbatore/) that skip this step are where colour mismatches and resizing errors usually start.
-
-
+![Customised Gift Shops in Coimbatore](https://raw.githubusercontent.com/CorporateConceptsSEO/Customised-gift-shops-in-Coimbatore/main/customised%20gift%20shops%20in%20coimbatore.png)
 ## Would You Like a Finish That Doesn't Fade in a Month?
 
 Cheap customisation work rarely holds up the way a proper technique would.
